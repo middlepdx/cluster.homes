@@ -39,7 +39,7 @@ Your neighbor,
 
 Matt McNamara
 
-matt@cluster.homes
+[matt@cluster.homes](mailto:matt@cluster.homes)
 
 ### Learn more
 
