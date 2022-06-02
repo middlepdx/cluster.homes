@@ -10,11 +10,7 @@ Photo source: [https://medium.com/@pdx4all](https://web.archive.org/web/20210614
 
 Who: Everyone in Zones R2.5, and [R5](https://www.portlandmaps.com/bps/zoning/#/zones/base/R5), R7, or R10, however this is an explicit offer to collaborate with any of my neighbors around Wygant, 21st and 22nd that might be interested in joining up.
 
-  
-
 New law in July 2022 will let us build tiny homes between our specific houses around Wygant and 21st and 22nd, as cheap as $15,000 each, with enough grant money from non-profits and government that we could move forward in a way that **would give us shared ownership/equity without any upfront costs** to any of us, **nor monthly dues until much further** along in the project, **while keeping our existing homes**.  We can then [sell these tiny affordable homes](https://tinyhouselistings.com/countries/united-states/states/oregon) or rent them at affordable market price, generating a profit for investments into our own homes while also addressing our housing crisis.
-
-  
 
 Structured as a non-profit co-op:
 
@@ -23,31 +19,19 @@ Structured as a non-profit co-op:
 -   We could set it up so you can provide a skill (landscaping, handyman, technology) and when the neighbors in the co-op have a need you are there to help while getting compensated with increased equity in the co-op or a fair wage paid from the dividends of the tiny-house revenue.  Also, all our homes are improved in a very cost effective and fast way.  It’s all up to us - we design how it works.
     
 -   We could tear down the fences that are falling apart and rebuild them, as a group, getting compensated for our time - and then rebuild them with a new community space design (literally picked by anyone living here who wants to help push that project forward, or however we decide to democratically set it up): **small private back-yards if you want one at all and a larger, group maintained community space**.  Below are some sketches of ideas but also imagine shared bbq grill/wood-fire oven, enclosed play space for dogs to play together, a mini-car-free space for people to live together.
-    
-
-  
 
 I'm not a lawyer or an urban planner, but here's a hypothetical of one option if 6 lots decided to participate.  The below maintains existing houses with a private backyard space for everyone that wants one, adds community gardens on both 21st and 22nd, and communal living in the middle.  I'm open to any ideas.  The example tiny homes shown have the same footprint as my old 1400sqft townhouse which includes required private backyard space for each new unit included in their green square.  To scale as best I could.
-
-  
 
 ![](https://lh4.googleusercontent.com/jkcy_8TMUh9v1pDZTg5Qtv701mJPWsdPL1RB0e1a171WKVSp75KFYasvEfkRmODHwyw9EaHymUYevEM_PskULUyOyM_ofbbB6nVhv_yFseG4OE0MdAK9i_mZq08HIK_P7_KYWD1vXRDvw1K3tQ)
 
 Again, this is all up for discussion and there are no costs to existing owners for the planning phase or to join (there will be monthly dues to pay ourselves for shared responsibilities much later).
 
-  
-
 For my lot neighbors: I am offering to navigate this process in a democratic and informed way, working closely with the city and the housing advocates and non-profits that helped design one of the most important housing reform bills that can quickly add new housing all over the city (I helped testify in favor!).  We just need to agree to have it in our backyard: but if we replace the fences between a few of our houses with 2-3 tiny homes on wheels (that can be moved!) and a larger, better, more maintained, and better supported community space - we will not only be able to help create generational change for people experiencing homelessness, but also create generational change for each of you who participate.
-
-  
 
 I'm here to discuss, evolve, or help in any way.
 
-  
-
 Let's be neighbors.  The more the merrier.
 
-  
 
 Your neighbor,
 
